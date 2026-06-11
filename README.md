@@ -1,2 +1,13 @@
 # amghezi
-yek gaav daram amghezi
+lmpempp
+
+mcoempek
+
+momeoenono
+
+moempempmpk
+
+mmomemom
+
+moemomoomo
+
